@@ -4,7 +4,7 @@ Nama: Isma Fitri Indriyani
 
 NIM: 2611500053
 
-Kelompok:-
+Kelompok:TI1J
 
 Tahun Ajaran: 2026/2027 Gasal
 
